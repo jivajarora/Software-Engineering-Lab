@@ -1,4 +1,0 @@
-i
-
-Jivaj Arora
-
